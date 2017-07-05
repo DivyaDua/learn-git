@@ -6,4 +6,4 @@
 
 I like talking.
 
-I am working as Software Consultant Trainee.
+I am working as SC Trainee.
